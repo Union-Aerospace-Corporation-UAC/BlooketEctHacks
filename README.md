@@ -1,3 +1,4 @@
-#Blooket Hacks
+Blooket, Gimkit, And Quizziz Hacks
+-------------
 
-I have hacks
+Yeah for all three

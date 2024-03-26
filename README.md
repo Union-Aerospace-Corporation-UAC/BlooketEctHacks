@@ -1,3 +1,3 @@
-#Blooket & Gimkit & Quizziz Hacks
+#Blooket Hacks
 
 I have hacks
